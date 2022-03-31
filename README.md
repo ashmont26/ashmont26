@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ashmont26
+- 👀 I’m interested in reading, watching random videos, listening to music, and any outdoor activities
+- 🌱 I’m currently studying to be a forester or environmentalist
+- 💞️ I’m looking to collaborate on anything that I can participate with
+- 📫 You can reach me at oashmon@gmail.com
